@@ -1,0 +1,1 @@
+- 👋 Hi, I’m Charles Liu, a current Economics & Accounting for Finanace and Consulting student at Boston College. While I have little to no knowledge of coding, I am learning! 
